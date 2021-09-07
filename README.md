@@ -48,3 +48,18 @@ https://user-images.githubusercontent.com/40735312/132273656-509f3dea-aa74-4165-
 https://user-images.githubusercontent.com/40735312/132273676-0bff8990-9105-4889-84d8-82be6f95823f.mp4
 
 
+![WhatsApp Image 2020-01-29 at 9 42 51 AM (1)](https://user-images.githubusercontent.com/40735312/132273865-408f21c7-fea7-4554-a88b-ca122f6f420c.jpeg)
+
+
+## Issues and Fixes
+
+
+
+https://user-images.githubusercontent.com/40735312/132273938-f8891de2-840d-4a61-873f-bd7d65cf9a33.mp4
+
+
+
+https://user-images.githubusercontent.com/40735312/132273954-2c838f1e-eae4-45e8-8a64-017c1e7ae43f.mp4
+
+
+
