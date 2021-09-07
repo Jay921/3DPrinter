@@ -24,3 +24,11 @@ We built a 3D printer from scratch!
 ## Electronics and Testing
 
 
+https://youtu.be/TyNM7QuSokA
+
+https://youtu.be/uQQR5DSSvBM
+
+https://youtu.be/ceRhld1kx94
+
+<!-- [![Alternate Text]({image-url})]({video-url} "Link Title") -->
+
