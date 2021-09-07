@@ -36,6 +36,8 @@ https://youtu.be/ceRhld1kx94
 
 ![WhatsApp Image 2020-09-13 at 1 41 46 PM (1)](https://user-images.githubusercontent.com/40735312/132273608-c85d2a6c-b64f-417f-9855-8ea848000549.jpeg)
 
+![WhatsApp Image 2020-01-29 at 9 42 51 AM (1)](https://user-images.githubusercontent.com/40735312/132273865-408f21c7-fea7-4554-a88b-ca122f6f420c.jpeg)
+
 
 https://user-images.githubusercontent.com/40735312/132273631-51419fde-ca3a-4d0c-949a-ecfe32a0364a.mp4
 
@@ -47,8 +49,6 @@ https://user-images.githubusercontent.com/40735312/132273656-509f3dea-aa74-4165-
 
 https://user-images.githubusercontent.com/40735312/132273676-0bff8990-9105-4889-84d8-82be6f95823f.mp4
 
-
-![WhatsApp Image 2020-01-29 at 9 42 51 AM (1)](https://user-images.githubusercontent.com/40735312/132273865-408f21c7-fea7-4554-a88b-ca122f6f420c.jpeg)
 
 
 ## Issues and Fixes
