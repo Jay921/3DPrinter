@@ -32,3 +32,19 @@ https://youtu.be/ceRhld1kx94
 
 <!-- [![Alternate Text]({image-url})]({video-url} "Link Title") -->
 
+## Prints
+
+![WhatsApp Image 2020-09-13 at 1 41 46 PM (1)](https://user-images.githubusercontent.com/40735312/132273608-c85d2a6c-b64f-417f-9855-8ea848000549.jpeg)
+
+
+https://user-images.githubusercontent.com/40735312/132273631-51419fde-ca3a-4d0c-949a-ecfe32a0364a.mp4
+
+
+
+https://user-images.githubusercontent.com/40735312/132273656-509f3dea-aa74-4165-abe7-17ffb77fb65a.mp4
+
+
+
+https://user-images.githubusercontent.com/40735312/132273676-0bff8990-9105-4889-84d8-82be6f95823f.mp4
+
+
